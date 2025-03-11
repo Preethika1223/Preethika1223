@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **preethikapalanisamy1228@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jm2fHkp4q6x6B9QUXaf5_EVsNao-wuPQ/view?usp=drive_link](https://drive.google.com/file/d/17pYUX1vHfEHtNVqBAOPKXHbNnZe5P8Ts/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1jm2fHkp4q6x6B9QUXaf5_EVsNao-wuPQ/view?usp=drive_link](https://drive.google.com/file/d/1e5BgeiWpNunJAJsBIcSqURaGV4_10mWl/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
