@@ -11,13 +11,13 @@
 
 - 🤝 I’m looking for help with **Ml project**
 
-- 👨‍💻 All of my projects are available at [https://preethika1223.github.io/Portfolio/](https://preethika1223.github.io/Portfolio/)
+- 👨‍💻 All of my projects are available at [Portfolio](https://preethika1223.github.io/Portfolio/)
 
 - 💬 Ask me about **Java, Spring Boot, Cloud Services**
 
 - 📫 How to reach me **preethikapalanisamy1228@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jm2fHkp4q6x6B9QUXaf5_EVsNao-wuPQ/view?usp=drive_link](https://drive.google.com/file/d/1e5BgeiWpNunJAJsBIcSqURaGV4_10mWl/view?usp=drive_link)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1e5BgeiWpNunJAJsBIcSqURaGV4_10mWl/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
